@@ -1,6 +1,5 @@
 # A Portrait of Dorian Gray
-
-### Oscar Wilde
+Oscar Wilde
 
 ## Tags: 
 Youth England Hedonism
