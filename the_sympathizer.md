@@ -1,7 +1,10 @@
-The Sympathizer
+# The Sympathizer 
 View Thanh Nguyen
 
-Quotes
+## Read 
+02/2018
+
+## Quotes 
 Oh, fish sauce! How we missed it, dear Aunt, how nothing tasted right without it, how we longed for the grand cru of Phu Quoc Island and its vats brimming with the finest vintage of pressed anchovies! This punchent liquid condiment of the darkest sepia hue was much denigrated by foreigners for its supposedly horrendous reek, lending new meaning to the phrase 'there's something fishy around here,' for we were the fishy ones. We used fish sauce the way Transylvanian villages wore cloves of garlic to ward off vampires, in our case to establish a perimiter with those westerners who coiuld never understand that what was truly fishy was the nauseating stench of cheese. What was fermented fish compared to curdled milk? (70)
 
 He said, Oh, you nisei, as if knowing that one word means he knows something about me. You've fogotten your culture, Ms. Mori, even though you're only second generation. Your issei parents, they hung onto their culture. Don't you want to learn Japanese? Don't you want to visit Nippon? For a long time I felt bad. I wondered why I didn't want to learn Japanese, why I didn't already speak Japanese, why I would rather go to Paris or Istanbul or Barcelona rather than Tokyo. But then I thought, Who cares? did anyone ask John F. Kennedy if he spoke Gaelic and visited Dublin or if he ate potatoes every night or if he collected paintings of leprechauns? So why are we supposed to not forget our culture? Isn't my culture right here since I was born here? (75)
