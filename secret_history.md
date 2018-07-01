@@ -16,5 +16,9 @@ The dazzle of this fictive childhood- full of swimming pools and orange groves a
 
 In a certain way, though, I know how my colleague feels. Not that everything 'went black,' nothing of the sort; only that the event itself is cloudy because of some primitve, numbing effect that obscured it at the time; the same effect, I suppose, that enables panicked mothers to swim icy rivers, or rush into burning houses, for a child; the effect that occasionally allows a deeply bereaved person to make it through a funeral without a single tear. Some things are too terrible to grasp at once. Other things- naked, sputtering, indelible in their horror- are too terrible to really ever grasp at all. It is only later, in solitude, in memory, that the realization dawns; when the ashes are cold; when the mourners have departed; when one looks around and finds oneself- quite to one's surprise- in an entirely different world (278)
 
+In the morning I woke up sore and disoriented to the sound of a loose shutter banging somewhere. The rain was falling harder than ever. It lashed in rhythmic waves against the windows of the light, brightly lit kitchen as we guests sat around the table and ate a silent, cheerless breakfast of coffee and Pop Tarts (408)
+
+He went back to his work, sticking the shovel into the ground, stepping hard on one side of the blade with a khaki-gaitered foot. His suspenders made a black X across his back. 'Then can you give me a hand with these lettuces,' [Henry] said. 'There;s another spade in the toolshed' (431)
+
 [Julian] 'Edmund was your friend. I too am very sorry that he is dead. But I think you are grieving yourself sick over this, and not only does that not help him, it hurts you. And besides, is death really so terrible a thing?'... 'It does not do to be frightened of things about which you know nothing,' he said. "You are like children. Afraid of the dark" (478)
 
