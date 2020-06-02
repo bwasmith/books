@@ -16,6 +16,10 @@ says, "He never talks about his feelings." And the woman who can see the future
 says, "At two P.M. all over the world men will begin to talk about their
 feelings--and women all over the world will be sorry." (6)
 
+I often use the phrase ‘imperialist white-supremacist capitalist patriarchy'
+to describe the interlocking political systems that are the foundation of our
+nation's politics (17)
+
 Men do oppress women. People are hurt by rigid sexist role patterns. These two
 realities coexist. Male oppression of women cannot be excused by the recognition
 that there are ways men are hurt by rigid sexist roles. Feminist activists
