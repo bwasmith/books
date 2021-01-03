@@ -28,6 +28,15 @@ he says, for duty allows me no other course. Yet I thank you for your gentle
 words, and if these are to be my last moments, then I'll leave this world a
 little more peacefully for them (121)
 
+I won't believe it, sir. How is it possible to hate so deeply for deeds not yet
+done? The good people who once took shelter here would have kept alive their
+opes to the end, and surely watched all suffering, of friend and foe, with pity
+and horror.
+You're much the senior in years, Master Axl, but in matters of blood it may be
+I'm the elder and you the youth. I've seen dark hatred as bottomless as the sea
+on the faces of old women and tender children, and some days felt such hatred
+myself (142)
+
 What use is a god with boundless mercy, sir? You mock me as a pagan, yet the
 gods of my ancestors pronounce clearly their ways and punish severely when we
 break their laws. Your Christian god of mercy gives men license to pursue their
@@ -73,6 +82,8 @@ that day? Were you with us? My helmet! I left it in those woods! But what need
 of it now? The armor too I'd take off but I fear you all laughing to see the
 skinned fox beneath! (275)
 
+What kind of god is it, sir, wishes wrongs to go forgotten and unpunished? (285)
+
 Yes, we slaughtered plenty, I admit it, caring not who was strong and who weak.
 God may not have smilied at us, but we cleansed the land of war (285)
 
@@ -85,4 +96,39 @@ Our son was witness to its, and at an age too old to be fooled with soft words,
 yet too young to know the many strange ways of our hearts (312)
 
 ## Thoughts/Description
+
+I absolutely love this book. I think it is the best book I have ever read to
+date.
+
+I love the complexity of Axel and Beatrice's relationship.
+
+I love the inner workings of Wistan, what he holds.
+
+I love Sir Gawain's way of speaking. His imagined exclaiming! of his thoughts.
+
+I love the way the implications of the monastery tickles my brain
+
+It is a low-key fantasy but high literature. Ishiguro truly does a beautiful job
+of weaving together the narrative of our main characters: Axel, Beatrice, Master
+Edwin, Master Wistan, Sir Gawain. Each character could be picked apart an
+analyzed. Understanding the characters leads to an exploration of rich topics of
+love, war, vengeance, and memory.
+
+The adventure begins with Axel and Beatrice living in a land where people are
+strangely forgetful. They set out to find their long lost son and in search of
+their old, cherished memories. Along the way they come across a warrior, a
+knight in shining armor, a dragon, and much more.
+
+Everybody should read about this book.
+
+Things to think about:
+- Beatrice and Axl
+- The boatman
+- Sir Gawain (his armor, horse, manner of speaking)
+- The warrior (his hate)
+- The dragon
+
+Things I have no idea about:
+- the thematic significance of the boy
+- The monks?
 
